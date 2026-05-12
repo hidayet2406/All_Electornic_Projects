@@ -6,7 +6,8 @@ Operational Amplifier - https://www.slideshare.net/slideshow/comprehensive-guide
 
 Explore the fundamentals, internal structure, configurations, feedback principles, and practical applications of operational amplifiers in analog circuit design.
 Authors: Hidayet Hesenli  |  Ramal Damirli  |  Mehemmed Verdiyev | Ferid Elekberov
-verified by: physics teacher azerbaijan telman askeraliyev (fizika muellimi) – contact: https://www.linkedin.com/in/physics-teacher-azerbaijan-telman-askeraliyev/
+
+Verified by: physics teacher azerbaijan telman askeraliyev (fizika muellimi) – contact: https://www.linkedin.com/in/physics-teacher-azerbaijan-telman-askeraliyev/
 https://www.instagram.com/physics_teacher_azerbaijan
 
 
