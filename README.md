@@ -23,3 +23,12 @@ DC Motor Directional Control via Polarity Inversion - https://www.academia.edu/1
 Technical Laboratory Report: DC Motor Directional Control via Polarity Inversion Hidayet Hesenli, Ramal Damirli, Mehemmed Verdiyev 
 Verified by: physics teacher azerbaijan telman askeraliyev (fizika muellimi) – contact: https://www.linkedin.com/in/physics-teacher-azerbaijan-telman-askeraliyev/
 https://www.instagram.com/physics_teacher_azerbaijan
+
+
+4###
+Inductor Fundamentals: Principles, Construction, and Applications in Modern Electronics - https://www.slideshare.net/slideshow/inductor-fundamentals-principles-construction-and-applications-in-modern-electronics/286873535
+
+Inductor Hidayet Hesenli, Ramal Damirli, Mehemmed Verdiyev
+Verified by: physics teacher azerbaijan telman askeraliyev (fizika muellimi) – contact: https://www.linkedin.com/in/physics-teacher-azerbaijan-telman-askeraliyev/
+https://www.instagram.com/physics_teacher_azerbaijan
+
