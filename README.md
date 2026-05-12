@@ -9,6 +9,8 @@ Verified by: physics teacher azerbaijan telman askeraliyev (fizika muellimi) –
 https://www.instagram.com/physics_teacher_azerbaijan
 
 
+
+
 2###
 Voltage Divider - https://www.slideshare.net/slideshow/voltage-divider-circuits-theory-and-practical-implementation/287240591
 Hidayet Hesenli, Ramal Damirli, Mehemmed Verdiyev ,Agshin Balayev , Farid Elekberov 
