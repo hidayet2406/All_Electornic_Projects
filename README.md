@@ -32,3 +32,22 @@ Inductor Hidayet Hesenli, Ramal Damirli, Mehemmed Verdiyev
 Verified by: physics teacher azerbaijan telman askeraliyev (fizika muellimi) – contact: https://www.linkedin.com/in/physics-teacher-azerbaijan-telman-askeraliyev/
 https://www.instagram.com/physics_teacher_azerbaijan
 
+
+5###
+ELECTRONIC TASK: Series vs Parallel Circuit Analysis - https://glaze-cuckoo-f03.notion.site/ELECTRONIC-TASK-Series-vs-Parallel-Circuit-Analysis-By-Hidayet-Hesenli-Ramal-Demirli-Nezrin-Serbe-32603a1c6703803cae98f449a4e151ca?source=copy_link 
+
+ELECTRONIC TASK: Series vs Parallel Circuit Analysis  By Hidayet Hesenli, Ramal Demirli, Mehemmed Verdiyev, Nezrin Serbetli 
+Verified by: physics teacher azerbaijan telman askeraliyev (fizika muellimi) – contact: https://www.linkedin.com/in/physics-teacher-azerbaijan-telman-askeraliyev/
+https://www.instagram.com/physics_teacher_azerbaijan
+
+
+6###
+Capacitors: Structure and Functionality - https://www.slideshare.net/slideshow/capacitors-structure-and-functionality-pdf/286543198
+
+What is Capacitor | Hidayet Hesenli, Ramal Demirli, Mehemmed Verdiyev, Nezrin Serbetli  Verified by: Physics Teacher Telman Askeraliyev (Fizika Muellimi)
+
+
+
+
+
+
